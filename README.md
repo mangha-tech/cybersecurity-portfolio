@@ -1,4 +1,4 @@
-# Cybersecurity-portfolio
+# Cybersecurity-Portfolio
 
 # Manga Bwen Angelica | Cybersecurity Analyst
 
